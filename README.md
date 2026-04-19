@@ -1,0 +1,5 @@
+ㅤ𐐲ᧉɑɗყㅤ   o𐐲 ㅤㅤⴄoƗㅤ ⠀ .  ⠀𝙃𝙀𝙍𝙀 𝙄 𝘾𝙊𝙈𝙀 ⠀
+
+ ![image alt](Untitled106_20260419131834.png)
+
+  ![image alt](blinkiesCafe-VU.gif)
